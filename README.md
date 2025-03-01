@@ -1,8 +1,6 @@
 # Hemp Harmony Luxury Body Lotion
 ## Formulation & Production Guide
 
-![Hemp Harmony Lotion](placeholder-image.jpg)
-
 ## Product Overview
 
 Hemp Harmony is a premium body lotion featuring rare, highly effective botanical ingredients centered around hemp seed oil. This formulation balances deep moisturization with a lightweight, non-greasy finish, delivering exceptional skin benefits while providing a sophisticated, multilayered scent experience.
